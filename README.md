@@ -22,5 +22,4 @@
 
 ## 📫 Контакты
 
-- Почта: eckyl@bk.ru
-- Телеграм: [@aiwokow](https://t.me/aiwokow)
+- Почта: aiwiw4@mail.ru
